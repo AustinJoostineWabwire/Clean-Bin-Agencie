@@ -1,2 +1,2 @@
-# Clean-Bin-Agencie
-We Recommend A Clean &amp; Green Environment.
+# Clean-Bin-Agencies
+We Recommend A Clean & Green Environment.
